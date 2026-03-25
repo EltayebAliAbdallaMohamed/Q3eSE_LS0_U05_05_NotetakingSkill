@@ -1,0 +1,1 @@
+# Q3eSE_LS0_U05_05_NotetakingSkill
